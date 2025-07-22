@@ -32,7 +32,6 @@
 ![crosses](https://github.com/user-attachments/assets/d48a7cf1-0e65-4196-ab30-7012cb733e0d)
 ![hannibaltv](https://github.com/user-attachments/assets/b1e93ac6-c977-46a2-85ad-b933109e4bd1)
 ![scenefreak](https://github.com/user-attachments/assets/adc945be-7d19-422c-8c88-3e2a87669ec5)
-<img width="100" height="56" alt="tumblr_bf653c39681d15d9d1ad604069183d6f_83c9b854_100" src="https://github.com/user-attachments/assets/9c69add0-49af-4bea-a462-ce5d801c41d7" />
 <img width="100" height="56" alt="tumblr_bf653c39681d15d9d1ad604069183d6f_83c9b854_100" src="https://github.com/user-attachments/assets/1f432b6f-7edd-4c16-8b3a-9e8c01447f39" />
 ![tumblr_5d084cf80054b94b1380730d0ba960a2_b88501c7_100](https://github.com/user-attachments/assets/8ea1179e-7104-41bd-9e86-bc23c9990bdd)
 <img width="250" height="141" alt="tumblr_ce31ebc47a763dd1e2c64e6398da2dd4_239f4c9d_250" src="https://github.com/user-attachments/assets/5d61da65-9b35-4ab8-a3c0-086bf242a914" />
