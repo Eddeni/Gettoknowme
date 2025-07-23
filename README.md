@@ -1,3 +1,2 @@
 
-<img width="250" height="141" alt="tumblr_ce31ebc47a763dd1e2c64e6398da2dd4_239f4c9d_250" src="https://github.com/user-attachments/assets/5d61da65-9b35-4ab8-a3c0-086bf242a914" />  
-<img width="250" height="141" alt="tumblr_cb685a0f53dd291e47973ce807eaba77_d662082d_250" src="https://github.com/user-attachments/assets/86162d6a-1f1b-421c-a58a-3384074663e9" />
+<img width="99" height="56" alt="tumblr_dd2726d02db3a15aea10a43fab1c8189_a70c8d16_100" src="https://github.com/user-attachments/assets/83bb7441-0f1d-488a-b518-5b4eac3bc294" /> 
