@@ -75,7 +75,7 @@
 
 <img width="99" height="56" alt="tumblr_dd2726d02db3a15aea10a43fab1c8189_a70c8d16_100" src="https://github.com/user-attachments/assets/83bb7441-0f1d-488a-b518-5b4eac3bc294" />   
 
-![tumblr_17e7f51e27c14f4360739a4113306e51_4a5cf44a_100](https://github.com/user-attachments/assets/50035d60-bf4e-4eb2-ac86-1a07b5c90c90)  WHAT THE HELL IS YAOI STAMP
+![tumblr_17e7f51e27c14f4360739a4113306e51_4a5cf44a_100](https://github.com/user-attachments/assets/50035d60-bf4e-4eb2-ac86-1a07b5c90c90)  
 
 <img width="99" height="55" alt="tumblr_d2088436b706f4b59818b44388d6dafa_86fc54d5_100" src="https://github.com/user-attachments/assets/0b4f474c-1e10-4d9b-a65b-d181500c6db8" />   
 
